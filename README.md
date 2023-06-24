@@ -8,7 +8,7 @@ Sempre tive interesse de trabalhar com tecnologia, mas não sabia para qual cami
 
 O que me motiva em tech é a minha avó.
 
-Uma coisa me chamou a atenção na pandemia: ver a dona Severina de 74 anos utilizando o Whatsapp, a mesma que veio da paraíba sem acesso a educação, sem saber ler, se comunicando com a família através de áudios e chamadas de vídeo. Meus primos a ensinaram e rapidamente ela aprendeu. Poder ter contato com ela todos os dias foi um alívio para mim, naquele momento tão complicado.
+Uma coisa me chamou a atenção na pandemia: ver a dona Severina de 74 anos utilizando o Whatsapp, a mesma que veio da paraíba sem acesso a educação, sem saber ler, agora se comunicando com a família através de áudios e chamadas de vídeo. Meus primos a ensinaram e rapidamente ela aprendeu. Poder ter contato com ela todos os dias foi um alívio para mim, naquele momento tão complicado.
 
 A qualidade de vida não só dela, mas de todos que conheço melhorou após o acesso à tecnologia, tanto para entretenimento quanto para resolver problemas simples do dia a dia.
 
